@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤмозет хватит меня копировать ![](https://files.catbox.moe/o3gjce.png)   
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤсто тебе мать твою от меня нузно
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ![](https://komarev.com/ghpvc/?username=yudzuyaoi&style=for-the-badge&color=ff69b4&label=МОИ+СТАЛКЕРЯТА)   
    
