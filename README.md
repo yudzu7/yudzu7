@@ -2,10 +2,10 @@
    сто тебе мать твою от меня нузно 
    </p>
    <p align="center">
-      🎕⠀˖   ݁   ⠀{  🍹  }
+      ⋆ ✴︎˚ ｡⋆࣪ ִֶָ☾. 
    </p>
 <p align="center">
-  <img src="https://sun9-54.vkuserphoto.ru/s/v1/ig2/wcropf_GvugMsXms_LeBn0407rboWi9ppJ7RKLRMVN1JSzrnVC6s48i6mt5ky81xVnHFJeW1sHjPPDTy6cYLbn-M.jpg?quality=95&as=32x12,48x18,72x27,108x40,160x60,240x90,360x135,480x180,540x202,574x215&from=bu&u=rso7Y2hff73fqRfA4XiahByqtovsCGDGtEqSHdUXzOQ&cs=574x0">
+  <img src="https://sun9-50.vkuserphoto.ru/s/v1/ig2/OtapdnuublFwLuv6EnsSNf8YaF3wk-PQ6j1ZkKo-zWs5_qKUVPaZ5xD7LCnDG4vaTvcaUzu4ajwnctD3dzr5khQH.jpg?quality=95&as=32x18,48x27,72x40,108x61,160x90,240x135,360x202,480x270,523x294&from=bu&u=G7LFIGlkz18cS2LT2Hp9Z6gb3r1qmfFTJZZJezkfo1E&cs=523x0">
 </p>
 
 ㅤㅤㅤㅤㅤ <p align="center">ㅤ![](https://komarev.com/ghpvc/?username=yudzuyaoi&style=for-the-badge&color=d265e6&label=МОИ+СТАЛКЕРЯТА)   
